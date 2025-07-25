@@ -32,6 +32,7 @@
 - [1996 Nissan maxima SE Sedan 4D $500 Listed a week ago in San Antonio, TX](https://www.facebook.com/marketplace/item/1081506850529790)
 - [Car $400 Listed 11 weeks ago in Baton Rouge, LA](https://www.facebook.com/marketplace/item/2134790720325404)
 - [2010 Nissan altima 2.5 Sedan 4D $500 Listed 34 weeks ago in New Orleans, LA](https://www.facebook.com/marketplace/item/1089562906288287)
+- [Mitsubishi Galant 2002 $300 Listed 11 hours ago in Statham, GA](https://www.facebook.com/marketplace/item/1086989492872881)
 - [1999 Toyota corolla $600 Listed 3 weeks ago in Atlanta, GA](https://www.facebook.com/marketplace/item/734996093024112)
 - [Ford Festiva $550 Listed 8 weeks ago in Weatherford, TX](https://www.facebook.com/marketplace/item/1815354402696192)
 - [2006 Nissan Maxima $800 Listed a day ago in Horn Lake, MS](https://www.facebook.com/marketplace/item/24038156855834703)
