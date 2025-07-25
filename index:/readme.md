@@ -53,4 +53,7 @@
 - [1993 Lexus LS400 $500 Listed a week ago in Tulsa, OK](https://www.facebook.com/marketplace/item/742631105029292)
 - [Toyota alavon $500$800  · In stock Listed in Odenville, AL](https://www.facebook.com/marketplace/item/24069160052737647)
 - [Ford Festiva $550 Listed 8 weeks ago in Weatherford, TX](https://www.facebook.com/marketplace/item/1815354402696192)
-- 
+- [2000 Toyota celica GT-S Liftback 2D $600 Listed 9 weeks ago in Taylorville, IL](https://www.facebook.com/marketplace/item/1765115267550344)
+- [2006 Chevy cobalt $750  · In stock Listed in Campbellsville, KY](https://www.facebook.com/marketplace/item/1767693313819275)
+- [2006 Malibu $600 Listed a day ago in Raceland, LA](https://www.facebook.com/marketplace/item/710876598605286)
+- [2009 Nissan Maxima $650 Listed 2 weeks ago in Laurel, MS](https://www.facebook.com/marketplace/item/593260890193054)
