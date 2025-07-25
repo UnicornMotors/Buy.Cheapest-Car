@@ -1,2 +1,4 @@
 - [1989 Nissan stanza GXE Sedan 4D $600](https://www.facebook.com/marketplace/item/2590158894661932/)
 - [2001 Honda accord EX Sedan 4D $500](https://www.facebook.com/marketplace/item/720842197530752)
+- [2000 Honda accord LX w/Honda Sensing Sedan 4D $800](https://www.facebook.com/marketplace/item/761684479715553)
+- [2009 Lexus IS 250 Sedan 4D $500](https://www.facebook.com/marketplace/item/1138408891456625)
