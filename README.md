@@ -1,1 +1,1 @@
-# Buy.Cheapest-Car-and-Pickup-Truck
+# Buy.Cheapest-Car
