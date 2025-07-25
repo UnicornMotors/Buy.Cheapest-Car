@@ -37,4 +37,6 @@
 - [Ford Festiva $550 Listed 8 weeks ago in Weatherford, TX](https://www.facebook.com/marketplace/item/1815354402696192)
 - [2006 Nissan Maxima $800 Listed a day ago in Horn Lake, MS](https://www.facebook.com/marketplace/item/24038156855834703)
 - [Chevy cavalier $500 Listed a day ago in Mansfield, TX](https://www.facebook.com/marketplace/item/1445559523126709)
-- [](url)
+- [2012 Nissan altima 3.5 SE Sedan 4D $600 Listed 5 hours ago in Overton, TX](https://www.facebook.com/marketplace/item/1101676138719646)
+- [2011 BMW 3 series 328i Sedan 4D $500 Listed 3 weeks ago in Smyrna, GA](https://www.facebook.com/marketplace/item/638883335984295)
+- 
