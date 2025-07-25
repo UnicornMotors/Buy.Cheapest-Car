@@ -57,3 +57,7 @@
 - [2006 Chevy cobalt $750  · In stock Listed in Campbellsville, KY](https://www.facebook.com/marketplace/item/1767693313819275)
 - [2006 Malibu $600 Listed a day ago in Raceland, LA](https://www.facebook.com/marketplace/item/710876598605286)
 - [2009 Nissan Maxima $650 Listed 2 weeks ago in Laurel, MS](https://www.facebook.com/marketplace/item/593260890193054)
+- [1999 Ford taurus L Sedan 4D $600 Listed 19 weeks ago in Thibodaux, LA](https://www.facebook.com/marketplace/item/3544541999175650)
+- [2005 Nissan murano $400 Listed 8 weeks ago in Rayville, LA](https://www.facebook.com/marketplace/item/717724370715323)
+- [2001 Toyota solara SLE Coupe 2D $700 Listed 2 days ago in Bloomington, IL](https://www.facebook.com/marketplace/item/1076768074011392)
+- [1995 Pontiac sunfire Coupe 2D $600 Listed 8 weeks ago in Holden, LA](https://www.facebook.com/marketplace/item/1039034001087691)
