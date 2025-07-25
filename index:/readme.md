@@ -36,3 +36,5 @@
 - [1999 Toyota corolla $600 Listed 3 weeks ago in Atlanta, GA](https://www.facebook.com/marketplace/item/734996093024112)
 - [Ford Festiva $550 Listed 8 weeks ago in Weatherford, TX](https://www.facebook.com/marketplace/item/1815354402696192)
 - [2006 Nissan Maxima $800 Listed a day ago in Horn Lake, MS](https://www.facebook.com/marketplace/item/24038156855834703)
+- [Chevy cavalier $500 Listed a day ago in Mansfield, TX](https://www.facebook.com/marketplace/item/1445559523126709)
+- [](url)
